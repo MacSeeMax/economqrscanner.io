@@ -1,0 +1,1 @@
+# economqrscanner.io
